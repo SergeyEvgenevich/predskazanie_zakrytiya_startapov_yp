@@ -1,0 +1,1 @@
+# predskazanie_zakrytiya_startapov_yp
